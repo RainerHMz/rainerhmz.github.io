@@ -16,5 +16,5 @@ Adams studierte Wirtschaftswissenschaften und Management mit Abschluss MBA an de
 * 2019 Loserthink: How Untrained Brains Are Ruining the World, Portfolio Penguin, ISBN 978-0593086339.
 
 
-> „Die Quelle allen Unglücks sind andere Leute. Sobald Sie lernen, andere Leute als lärmende Möbel zu sehen, werden Sie glücklich werden.“
+> Die Quelle allen Unglücks sind andere Leute. Sobald Sie lernen, andere Leute als lärmende Möbel zu sehen, werden Sie glücklich werden.
 
