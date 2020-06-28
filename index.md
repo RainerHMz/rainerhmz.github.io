@@ -18,3 +18,8 @@ Adams studierte Wirtschaftswissenschaften und Management mit Abschluss MBA an de
 
 > Die Quelle allen Unglücks sind andere Leute. Sobald Sie lernen, andere Leute als lärmende Möbel zu sehen, werden Sie glücklich werden.
 
+<img src="https://de.wikipedia.org/wiki/Scott_Adams_(Comiczeichner)#/media/Datei:Scott_Adams.jpg"/>
+
+
+
+
